@@ -1,3 +1,3 @@
 # url2157.rib-software.com-
 url2157.rib-software.com  
-## subdomain tackover by hackmaster
+## Subdomain takeover by the RIB security team
